@@ -2,7 +2,10 @@
 <br>
 The world is your oyster🌊🐚
 
-![| Self Love is the best love |](https://images.unsplash.com/photo-1494783367193-149034c05e8f?ixlib=rb-1.2.1&ixid=MXwxMjA3fDB8MHxleHBsb3JlLWZlZWR8NHx8fGVufDB8fHw%3D&w=1000&q=80)
+![| Self Love is the best love |](https://images.unsplash.com/photo-1471958680802-1345a694ba6d?w=500&auto=format&fit=crop&q=60&ixlib=rb-4.0.3&ixid=M3wxMjA3fDB8MHxzZWFyY2h8Nnx8b3BlbiUyMHJvYWR8ZW58MHx8MHx8fDA%3D)
+
+
+<!--https://images.unsplash.com/photo-1494783367193-149034c05e8f?ixlib=rb-1.2.1&ixid=MXwxMjA3fDB8MHxleHBsb3JlLWZlZWR8NHx8fGVufDB8fHw%3D&w=1000&q=80)
 
 
 
